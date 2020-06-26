@@ -25,6 +25,6 @@ Contact me on:
 
 👉🏻 [Twitter](http://twitter.com/juventusRuling)
 
-👉🏻 [Email](mail:n4ze3m@gmail.com)
+👉🏻 [Email](mailto:n4ze3m@gmail.com)
 
 👉🏻 [Linkedin](https://www.linkedin.com/in/muhammad-nazeem-5ab092180/)
